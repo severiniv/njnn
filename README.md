@@ -1,4 +1,3 @@
-
-<img src="https://github.com/user-attachments/assets/244f9886-536d-458c-b080-ab1b5b7dc7d0">
-
-![Take YOUR Bitcoins! – Telegraph - Google Chrome](https://github.com/user-attachments/assets/732f0dbe-6e19-46c1-ab6e-04ae0e3e32a5)
+<a href="dasdasd">
+![Take YOUR Bitcoins! – Telegraph - Google Chrome](https://github.com/user-attachments/assets/32098894-3af7-4ab3-aa9c-3088d38d0cb3)
+</a>
